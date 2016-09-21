@@ -1,26 +1,5 @@
-# lll       
-##sadadad
-###dfadf
-####aasdfew
-#####dawdasd
-######dadas
-#######adasdesada
 
 
 
-
---- 
-asdascas
-ascascasd
-ascacscd
-
-
-*sajkfkhfonf
-
-
-1.asdas
-2.asdacasc
-3.asdasdcacs
-4.ascasdvfwefcdsadvc
-![사진](http://cfile8.uf.tistory.com/image/221220495655AFA724FCF4)
-[동영상](https://youtu.be/QCNbZODmhJA)
+![사진](http://www.dogdrip.net/files/attach/dvs/15/11/08/19201543/460/824/084/d067e00a524376465ae5bae854d6c881.jpg)
+[동영상](https://youtu.be/0-MzJ7FeROQ)
